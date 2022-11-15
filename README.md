@@ -1,6 +1,6 @@
 **Hi there, I'm Carmen! located in Denver CO**
 
-I'm Karen. I'm a WordPress, WooCommerce, Shopify UI/UX Expert and Web Designer and located in Denver CO. I have experience planning and delivering world-class website projects and support to companies of all sizes, including custom HTML, PHP, WordPress, WooCommerce and Shopify development and optimization. I'm a full-time freelancer! I'm always working on a new project to help the community.
+I'm a WordPress, WooCommerce, Shopify UI/UX Expert and Web Designer and located in Denver CO. I have experience planning and delivering world-class website projects and support to companies of all sizes, including custom HTML, PHP, WordPress, WooCommerce and Shopify development and optimization. I'm a full-time freelancer! I'm always working on a new project to help the community.
 •	I've helped deliver more than 200 custom websites and web-based applications!
 •	My core strengths are Shopify and WordPress (custom plugin and theme development)!
 
